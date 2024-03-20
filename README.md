@@ -6,6 +6,8 @@ https://drive.google.com/drive/folders/1ukPQrhwBm3eIfCg3LwuNLXpHBlREIirL
 https://docs.google.com/document/d/1-o2Rnbim6QaYaxshD61CV_CNtS7uIivw_7uO1iyrOXE/edit
 ## таблица Туры
 https://docs.google.com/spreadsheets/d/1YYVprHG16pR1d8hooWiHCp4_SwctfwbXEK3d9yCf5Kk/edit
+![image](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/0e90db0a-adb7-49d8-8956-4669e43592a1)
+
 ![2024-03-01_11-33](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/8d65a260-7474-4186-acea-0ee4a5c61e29)
 ![2024-03-01_11-32_2](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/3ca8817e-1c5f-45cb-8218-d958201702d8)
 ![2024-03-01_11-32_1](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/49ca05d9-2410-417a-a0b0-96f37701236e)
