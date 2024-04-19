@@ -16,7 +16,8 @@ https://docs.google.com/spreadsheets/d/1LT1KGJd-vB28X4ZuuD6lhQBBtWWHffaf2GY79Jc_
 https://docs.google.com/spreadsheets/d/1Z7jG--u7YZBN25TZnx69aBMviYxpPVu1oUb1VNRRXtY/edit#gid=0
 ## сущности:
 https://docs.google.com/spreadsheets/d/1hI26mxqECVp9BWA3Us628FVy-2QjcG3DcAu3CQiZo6M/edit#gid=0
-![image](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/0e90db0a-adb7-49d8-8956-4669e43592a1)
+![image](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/340ea5f5-ca22-4b4e-b7e7-7ddca32c7b61)
+
 
 ![2024-03-01_11-33](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/8d65a260-7474-4186-acea-0ee4a5c61e29)
 ![2024-03-01_11-32_2](https://github.com/LU1SAAA/-INFOBAZE-BAZADANYH/assets/144117524/3ca8817e-1c5f-45cb-8218-d958201702d8)
